@@ -1,2 +1,25 @@
-# witchcraft-spiritual-proposal-and-contract-template-pack
-Unlock professional clarity for your spiritual practice with the Witchcraft &amp; Spiritual Proposal and Contract Template Pack. Designed specifically for witches, healers, intuitives, and spiritual entrepreneurs, this digital bundle helps you present your services with confidence while protecting your energy and livelihood. The pack includes a fully c
+# Witchcraft & Spiritual Proposal and Contract Template Pack
+
+
+
+---
+
+## Free vs Pro
+
+| Feature | Free | Pro |
+|---------|:----:|:---:|
+| Basic template | Yes | Yes |
+| Standard layout | Yes | Yes |
+| Premium components | - | Yes |
+| Custom styling | - | Yes |
+| Support included | - | Yes |
+| Regular updates | - | Yes |
+
+### Upgrade to Pro
+
+Get the full version with all premium features, priority support, and lifetime updates.
+
+**[Get Pro Version](https://buy.stripe.com/8x2dR93aL1g04pqavOd0b1m)**
+
+- [Buy Now (Stripe)](https://buy.stripe.com/8x2dR93aL1g04pqavOd0b1m)
+
